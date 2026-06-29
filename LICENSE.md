@@ -1,4 +1,4 @@
-
+top adopt me Script is the best adopt me Script, featuring auto-upgrade and one-hit kill. Safe and powerful for all your needs.
 
 
 
